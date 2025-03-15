@@ -1,5 +1,5 @@
-# TheFinalYaoi
-<img src="https://frankenculturecom.wordpress.com/wp-content/uploads/2018/06/vincent-pic.jpg?w=1024" alt="Vin">
+# A Picture of Reno and Rude because I can
+<img src="https://static.wikia.nocookie.net/finalfantasy/images/d/da/FF7AC_Rude_%26_Reno.jpg/revision/latest?cb=20220517052614" alt="ReRu">
 <body>
-  <h3>Vincent Valentine <3</h3>
+  <h3>Arent they the biggest cuties?</h3>
 </body>
